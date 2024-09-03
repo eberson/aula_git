@@ -8,8 +8,7 @@ Quando você começa a trabalhar num repositório vc tem dois caminhos:
 - Conectar um repositório seu em um repositório remoto;
 arlei 
 
+Eric Richard Ortolan Chrystovam
 Caio Bononi
-
-Danilo
 
 Eberson Oliveira
