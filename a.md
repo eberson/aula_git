@@ -10,6 +10,7 @@ arlei
 
 Giovana
 
+Eric Richard Ortolan Chrystovam
 Caio Bononi
 
 Eberson Oliveira
