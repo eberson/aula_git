@@ -16,5 +16,6 @@ Caio Bononi
 Eberson Oliveira
 
 Samanta
-
+Rafaela Baptista
 Marco Ramos
+
