@@ -15,4 +15,5 @@ Caio Bononi
 
 Eberson Oliveira
 
-Rafaala Baptista
+Rafaela Baptista
+Marco Ramos
