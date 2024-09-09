@@ -13,21 +13,11 @@ Eric Richard Ortolan Chrystovam
 Eberson Oliveira
 Giovana
 Rafael Ferrari Filho
-Giovana
 Eric Richard Ortolan Chrystovam
 Caio Bononi
-Eberson Oliveira
 Sofia
 Mayk Silva
 Arlei 
-Caio Bononi
-Eberson Oliveira
 Mirela Teles
-Sofia
-Mayk Silva
 Quévin William da Silva
-Eric Richard Ortolan Chrystovam
-Giovana
 Maria Eduarda
-Mayk Silva
-Sofia
