@@ -12,3 +12,10 @@ Eric Richard Ortolan Chrystovam
 Eberson Oliveira
 Giovana
 Rafael Ferrari Filho
+Giovana
+Eric Richard Ortolan Chrystovam
+Caio Bononi
+Eberson Oliveira
+Sofia
+Mayk Silva
+
