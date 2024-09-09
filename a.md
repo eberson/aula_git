@@ -23,7 +23,6 @@ Arlei
 Caio Bononi
 Eberson Oliveira
 Mirela Teles
-quevin
 Sofia
 Mayk Silva
 Quévin William da Silva
