@@ -10,5 +10,12 @@ Quando você começa a trabalhar num repositório vc tem dois caminhos:
 Arlei 
 Caio Bononi
 Eberson Oliveira
+quevin
+Sofia
+Mayk Silva
+Quévin William da Silva
 Eric Richard Ortolan Chrystovam
 Giovana
+Maria Eduarda
+Mayk Silva
+Sofia
