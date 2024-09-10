@@ -15,9 +15,7 @@ Giovana
 Rafael Ferrari Filho
 Eric Richard Ortolan Chrystovam
 Caio Bononi
-
 Eberson Oliveira
-
 Marco Ramos
 Sofia
 Mayk Silva
